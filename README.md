@@ -1,7 +1,7 @@
 # Download HDO Box App – Unlimited Entertainment - Free download Apk for Android, Firestick, iOS, & Smart TV
 Discover a world of endless entertainment with HDO Box Apk. It lets you Stream & Download thousands of Movies and TV shows effortlessly using the HDO Box app on Android, Firestick, iOS and Android TV.
 
-## Download HDO Box: [https://hdoboxplus.com/](https://hdoboxplus.com/)
+## Download HDO Box v2.0.20: [https://hdoboxplus.com/](https://hdoboxplus.com/)
 
 ![HDO BOX APP](https://hdoboxplus.com/wp-content/uploads/2024/12/hdoboxapp.png)
 
